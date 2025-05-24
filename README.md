@@ -1,0 +1,1 @@
+# Magic-Duels-tricks-for-mode
